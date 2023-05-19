@@ -1,1 +1,0 @@
-Grupo: Erick Rocha e Gisele Oliveira
